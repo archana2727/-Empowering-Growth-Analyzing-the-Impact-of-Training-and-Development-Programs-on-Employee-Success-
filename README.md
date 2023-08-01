@@ -8,7 +8,7 @@ The study will be conduct to find out the overall impact of training and develop
 Objectives
 1. To find out the relevance of training and development in achieving goals of the organization.
 2. The basis on which the training is planned and scheduled.
-3. To study the different methods of training at ADBOK Capital Management.
+3. To study the different methods of training at NBCC India Ltd.
 4. To find out whethis the training activities is aligned with overall goals of the organization
 5. To study the relationship between performance and training
 6. To study the Importance of Training and Development.
